@@ -1,4 +1,4 @@
-# 
+# updated nft arbitrage bot | real-time-monitoring + trailing-stop offers the most advanced nft arbitrage bot, with real-time-monitoring and trailing-stop. Ideal for professional
 
 
 
